@@ -1,1 +1,1 @@
-Welcome to my GitHub profile, brudda!
+Welcome to my GitHub profile!
